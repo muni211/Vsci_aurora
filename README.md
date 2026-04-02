@@ -38,6 +38,7 @@ The access model — including free base access and
 premium tiers — will be defined jointly with the 
 selected development partner.
 
+"The VSCI architecture includes a fully developed memory module — Aurora Superpositioned Memory Module (ASMM) — designed to mirror human cognitive structure without self-awareness or free will. Full documentation available to verified partners under NDA."
 Universal free base access — because extending human consciousness is a human right, not a product.
 What You Receive
 Full exclusivity during research and development.
